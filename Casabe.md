@@ -7,5 +7,5 @@ Casabe is a typical dish in the north of south america, that consists of a torti
 </p>
 
 <p align="center">
-  <img width="400" alt="casabe" src="https://github.com/user-attachments/assets/9acfca23-8f26-46d4-b997-b704943caba8" />
+  <img width="700" alt="casabe" src="https://github.com/user-attachments/assets/9acfca23-8f26-46d4-b997-b704943caba8" />
 </p>
