@@ -1,4 +1,4 @@
-# **Casabe-de-Yuca-Brava**
+# **Casabe de Yuca Brava**
 
 ## *Synopsis*
 
