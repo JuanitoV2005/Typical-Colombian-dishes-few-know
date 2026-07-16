@@ -3,9 +3,8 @@
 ## *Synopsis*
 
 <p align="justify">
-AA
+Wheat cuchuco with pork spine is a traditional soup from Cundiboyacense highlands. Made with ground wheat, potatoes, vegetables, broad beans, and pork spine, it reflects the region’s agricultural richness and combines Muisca culinary heritage with European influences. It’s also a meal that represents geography, history, traditions, and cultural identity of Boyacá and Cundinamarca.
 </p>
-
 
 ## *Review*
 
