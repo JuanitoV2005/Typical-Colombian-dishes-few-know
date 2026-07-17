@@ -3,10 +3,14 @@
 ## *Synopsis*
 
 <p align="justify">
-Cuchuco con espinazo is a traditional Colombian soup whose main ingredient can be one of three grains: barley, wheat, or white corn. It gets its name from the word "cuchuco," which is the residue left over from grinding one of these grains. This dish is mixed with chopped carrots, peas, fava beans, Swiss chard, peeled and diced potatoes, along with a good piece of pork spine, the quintessential cut of meat, which gives it an intense flavor and contributes to the warming and comforting feeling it provides.
+Wheat cuchuco with pork spine is a traditional soup from Cundiboyacense highlands. Made with ground wheat, potatoes, vegetables, broad beans, and pork spine, it reflects the region’s agricultural richness and combines Muisca culinary heritage with European influences. It’s also a meal that represents geography, history, traditions, and cultural identity of Boyacá and Cundinamarca.
 </p>
 
 ## *Review*
+
+<p align="justify">
+Cuchuco with pork spine is a traditional Colombian soup whose main ingredient can be one of three grains: barley, wheat, or white corn. It gets its name from the word "cuchuco," which is the residue left over from grinding one of these grains. This dish is mixed with chopped carrots, peas, fava beans, Swiss chard, peeled and diced potatoes, along with a good piece of pork spine, the quintessential cut of meat, which gives it an intense flavor and contributes to the warming and comforting feeling it provides.
+</p>
 
 <p align="justify">
 This home-style dish originated in the Cundiboyacense Plateau, located in the Andean region, characterized by its flat, high plains. It encompasses the departments of Boyacá and Cundinamarca and is situated in the eastern Andes mountain range. Its territory largely coincides with the former territory occupied by the Muisca, an indigenous civilization of great local importance at the time of the arrival of the Spanish to what is now Colombia.
