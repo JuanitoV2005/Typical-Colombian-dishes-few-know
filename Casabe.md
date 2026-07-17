@@ -24,6 +24,10 @@ This bread has two principal characteristics, the first one is that cassava brea
 The process of making cassava bread consists of eight steps. The first three steps focus on preparing the cassava: washing, peeling, cutting, and removing the fibrous core. The fourth and fifth steps are the most important because the cassava is grated and pressed to release the toxic liquid. Finally, the remaining steps focus on making the bread or crackers. This part begins with drying the cassava mass left from the previous process and ends with cooking it.
 </p>
 
+## Video
+
+Watch the video here: [Cassava bread](https://youtu.be/42-B0PTIRZI)
+
 ---
 
 ## *References*
