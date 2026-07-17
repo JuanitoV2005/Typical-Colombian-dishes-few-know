@@ -23,3 +23,25 @@ This bread has two principal characteristics, the first one is that cassava brea
 <p align="justify">
 The process of making cassava bread consists of eight steps. The first three steps focus on preparing the cassava: washing, peeling, cutting, and removing the fibrous core. The fourth and fifth steps are the most important because the cassava is grated and pressed to release the toxic liquid. Finally, the remaining steps focus on making the bread or crackers. This part begins with drying the cassava mass left from the previous process and ends with cooking it.
 </p>
+
+---
+
+## *References*
+
+Bon Viveur. (s.f.). *Casabe: Receta tradicional paso a paso*. https://bonviveur.com/es/recetas/casabe
+
+Centro Cultural Taíno Casa del Cordón. (2025, 22 de enero). *El casabe, el pan de la conquista - Su importancia histórica y su reciente exaltación por la UNESCO*. https://casadelcordon.com/El-casabe-el-pan-de-la-conquista
+
+CooksInfo. (s.f.). *Casabe bread*. https://www.cooksinfo.com/casabe-bread
+
+Fundación Etnollano. (s.f.). *El cacao como alternativa económica para las comunidades indígenas del medio río Guaviare*. https://www.fundacionetnollano.org/post/el-cacao-como-alternativa-econ%C3%B3mica-para-las-comunidades-ind%C3%ADgenas-del-medio-r%C3%ADo-guaviare-1
+
+Laylita's Recipes. (s.f.). *Casabe venezolano: Receta y preparación*. https://www.laylita.com/recetas/casabe-venezolano/
+
+Le Monde. (2025, 2 de enero). *With cassava inscribed on UNESCO's World Heritage list, rural Caribbean communities see a bright future*. https://www.lemonde.fr/en/international/article/2025/01/02/with-cassava-inscribed-on-unesco-s-world-heritage-list-rural-caribbean-communities-see-a-bright-future_6736646_4.html
+
+UNESCO. (s.f.). *Traditional knowledge and practices for the making and consumption of cassava bread*. https://ich.unesco.org/en/RL/traditional-knowledge-and-practices-for-the-making-and-consumption-of-cassava-bread-02118
+
+Yahoo! Vida y Estilo. (s.f.). *Cómo preparar casabe de yuca cubano en casa*. https://es-us.vida-estilo.yahoo.com/preparar-casabe-yuca-cubano-casa-224406040.html
+
+Wikipedia. (2026, 20 de junio). *Casabe de yuca*. Wikipedia, la enciclopedia libre. https://es.wikipedia.org/wiki/Casabe_de_yuca
