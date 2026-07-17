@@ -40,19 +40,34 @@ This historical fact demonstrates that the dishes we bring to our kitchens not o
 These are some of the most outstanding characteristics of cuchuco de cebada con espinazo (barley and pork spine stew). This dish, made primarily with potatoes and ground grains, represents the foundation of Boyacá's gastronomy, showcasing a local cuisine that perfectly combines a wide range of essential ingredients for healthy growth and well-being. In short, cuchuco can be described as a hearty, delicious, substantial, and revitalizing meal, with a vibrant palette of diverse vegetables and meats that blend indigenous and European traditions, always leaving diners with a full belly and a happy heart.
 </p>
 
+---
+
 ## *References*
 
-* **Recetas Nestlé.** *Cuchuco de trigo con espinazo.* Disponible en: [https://www.recetasnestle.com.co/recetas/cuchuco-de-trigo-con-espinazo](https://www.recetasnestle.com.co/recetas/cuchuco-de-trigo-con-espinazo)
-* **Señal Memoria.** *Cuchuco de trigo con espinazo: de olla en olla.* Disponible en: [https://www.senalmemoria.co/piezas/cuchuco-de-trigo-con-espinazo-de-olla-en-olla](https://www.senalmemoria.co/piezas/cuchuco-de-trigo-con-espinazo-de-olla-en-olla)
-* **Revista Semana.** *El destino de Boyacá donde se come el mejor cuchuco de trigo con espinazo, un lugar colonial para no perderse.* Disponible en: [https://www.semana.com/turismo/articulo/el-destino-de-boyaca-donde-se-come-el-mejor-cuchuco-de-trigo-con-espinazo-un-lugar-colonial-para-no-perderse/202632/](https://www.semana.com/turismo/articulo/el-destino-de-boyaca-donde-se-come-el-mejor-cuchuco-de-trigo-con-espinazo-un-lugar-colonial-para-no-perderse/202632/)
-* **Las Noticias de Boyacá.** *El renacer del cuchuco de trigo con espinazo: un viaje al corazón del campo boyacense.* Disponible en: [https://lasnoticiasdeboyaca.com/el-renacer-del-cuchuco-de-trigo-con-espinazo-un-viaje-al-corazon-del-campo-boyacense/](https://lasnoticiasdeboyaca.com/el-renacer-del-cuchuco-de-trigo-con-espinazo-un-viaje-al-corazon-del-campo-boyacense/)
-* **Colombia.co.** *Comida cundiboyacense: un placer para cada hora del día y la noche.* Disponible en: [https://colombia.co/cultura-colombiana/gastronomia/comida-cundiboyacense-un-placer-para-cada-hora-del-dia-y-la-noche](https://colombia.co/cultura-colombiana/gastronomia/comida-cundiboyacense-un-placer-para-cada-hora-del-dia-y-la-noche)
-* **Wikipedia.** *Altiplano cundiboyacense.* Disponible en: [https://es.wikipedia.org/wiki/Altiplano_cundiboyacense](https://es.wikipedia.org/wiki/Altiplano_cundiboyacense)
-* **Revista Chakiñan.** *Artículos de investigación y cultura.* Disponible en: [https://chakinan.unach.edu.ec/index.php/chakinan/article/view/970](https://chakinan.unach.edu.ec/index.php/chakinan/article/view/970)
-* **INCI (Instituto Nacional para Ciegos).** *Sabores andinos.* Disponible en: [https://www.inci.gov.co/sabores-andino](https://www.inci.gov.co/sabores-andino)
-* **SciELO Colombia.** *Artículos científicos y de investigación gastronómica o nutricional.* Disponible en: [http://www.scielo.org.co/scielo.php?script=sci_arttext&pid=S0124-41082012000200009](http://www.scielo.org.co/scielo.php?script=sci_arttext&pid=S0124-41082012000200009)
-* **PMC (PubMed Central).** *Estudios sobre nutrición y propiedades de legumbres.* Disponible en: [https://pmc.ncbi.nlm.nih.gov/articles/PMC9025908/](https://pmc.ncbi.nlm.nih.gov/articles/PMC9025908/)
-* **La Huertoteca.** *Curiosidades sobre habas.* Disponible en: [https://lahuertoteca.es/curiosidades-sobre-habas](https://lahuertoteca.es/curiosidades-sobre-habas)
-* **RTVE.** *Habas: curiosidades, usos e historia de una legumbre.* Disponible en: [https://www.rtve.es/television/20230522/habas-curiosidades-usos-historia-legumbre/2443248.shtml](https://www.rtve.es/television/20230522/habas-curiosidades-usos-historia-legumbre/2443248.shtml)
-* **La Rioja.** *Información sobre cultivos e historia de las habas.* Disponible en: [https://www.larioja.com/comarcas/habas-20210603095721-nt.html](https://www.larioja.com/comarcas/habas-20210603095721-nt.html)
-* **Leche Puleva.** *Blog de nutrición: Propiedades de las habas.* Disponible en: [https://www.lechepuleva.es/blog/habas/](https://www.lechepuleva.es/blog/habas/)
+Colombia.co. (s.f.). *Comida cundiboyacense: un placer para cada hora del día y la noche*. https://colombia.co/cultura-colombiana/gastronomia/comida-cundiboyacense-un-placer-para-cada-hora-del-dia-y-la-noche
+
+Instituto Nacional para Ciegos. (s.f.). *Sabores andinos*. https://www.inci.gov.co/sabores-andino
+
+La Huertoteca. (s.f.). *Curiosidades sobre habas*. https://lahuertoteca.es/curiosidades-sobre-habas
+
+La Rioja. (2021, 3 de junio). *Información sobre cultivos e historia de las habas*. https://www.larioja.com/comarcas/habas-20210603095721-nt.html
+
+Las Noticias de Boyacá. (s.f.). *El renacer del cuchuco de trigo con espinazo: un viaje al corazón del campo boyacense*. https://lasnoticiasdeboyaca.com/el-renacer-del-cuchuco-de-trigo-con-espinazo-un-viaje-al-corazon-del-campo-boyacense/
+
+Leche Puleva. (s.f.). *Propiedades de las habas*. https://www.lechepuleva.es/blog/habas/
+
+Mendoza-Espinoza, J. A., & Gómez-Sánchez, I. (2012). Artículos científicos y de investigación gastronómica o nutricional. *Revista de la Facultad de Medicina Humana*, 12(2). http://www.scielo.org.co/scielo.php?script=sci_arttext&pid=S0124-41082012000200009
+
+Recetas Nestlé. (s.f.). *Cuchuco de trigo con espinazo*. https://www.recetasnestle.com.co/recetas/cuchuco-de-trigo-con-espinazo
+
+Revista Chakiñan. (s.f.). *Artículos de investigación y cultura*. https://chakinan.unach.edu.ec/index.php/chakinan/article/view/970
+
+Revista Semana. (s.f.). *El destino de Boyacá donde se come el mejor cuchuco de trigo con espinazo, un lugar colonial para no perderse*. https://www.semana.com/turismo/articulo/el-destino-de-boyaca-donde-se-come-el-mejor-cuchuco-de-trigo-con-espinazo-un-lugar-colonial-para-no-perderse/202632/
+
+RTVE. (2023, 22 de mayo). *Habas: curiosidades, usos e historia de una legumbre*. https://www.rtve.es/television/20230522/habas-curiosidades-usos-historia-legumbre/2443248.shtml
+
+Señal Memoria. (s.f.). *Cuchuco de trigo con espinazo: de olla en olla*. https://www.senalmemoria.co/piezas/cuchuco-de-trigo-con-espinazo-de-olla-en-olla
+
+Singh, A. K., Singh, S. S., & Latika, S. (2022). Estudios sobre nutrición y propiedades de legumbres. *Frontiers in Nutrition*, 9, Artículo 9025908. https://pmc.ncbi.nlm.nih.gov/articles/PMC9025908/
+
+Wikipedia. (s.f.). *Altiplano cundiboyacense*. Wikipedia, la enciclopedia libre. https://es.wikipedia.org/wiki/Altiplano_cundiboyacense
