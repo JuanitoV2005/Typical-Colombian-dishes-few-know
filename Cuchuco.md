@@ -42,7 +42,7 @@ These are some of the most outstanding characteristics of cuchuco de cebada con 
 
 ## Video
 
-Watch the video here: [Cuchuco con Espinazo de Cerdo](https://youtu.be/cSeqB9XBjS0)
+Watch the video here: [Cuchuco with pork spine](https://youtu.be/cSeqB9XBjS0)
 
 ---
 
