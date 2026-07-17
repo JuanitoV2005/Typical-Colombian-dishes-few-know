@@ -3,43 +3,31 @@
 ## *Synopsis*
 
 <p align="justify">
-Wheat cuchuco with pork spine is a traditional soup from Cundiboyacense highlands. Made with ground wheat, potatoes, vegetables, broad beans, and pork spine, it reflects the region’s agricultural richness and combines Muisca culinary heritage with European influences. It’s also a meal that represents geography, history, traditions, and cultural identity of Boyacá and Cundinamarca.
+Cuchuco con espinazo is a traditional Colombian soup whose main ingredient can be one of three grains: barley, wheat, or white corn. It gets its name from the word "cuchuco," which is the residue left over from grinding one of these grains. This dish is mixed with chopped carrots, peas, fava beans, Swiss chard, peeled and diced potatoes, along with a good piece of pork spine, the quintessential cut of meat, which gives it an intense flavor and contributes to the warming and comforting feeling it provides.
 </p>
 
 ## *Review*
 
 <p align="justify">
-Wheat and pork spine soup is a traditional soup that can be made with different grains, such as barley, wheat, and white corn. Its name comes from cuchuco, the residue from the first milling of these grains. It is generally mixed with diced carrots, peas, broad beans, Swiss chard, peeled and quartered potatoes, and a generous piece of pork spine, the quintessential cut of meat, providing an intense and comforting flavor for the locals.
+This home-style dish originated in the Cundiboyacense Plateau, located in the Andean region, characterized by its flat, high plains. It encompasses the departments of Boyacá and Cundinamarca and is situated in the eastern Andes mountain range. Its territory largely coincides with the former territory occupied by the Muisca, an indigenous civilization of great local importance at the time of the arrival of the Spanish to what is now Colombia.
 </p>
 
 <p align="justify">
-This home-style dish originates from the Cundiboyacense plateau, located in the Andean Region, characterized by its high, flat lands. Comprising the departments of Boyacá and Cundinamarca, it is also situated in the eastern Andes mountain range. Its territory largely coincides with the former territory occupied by the Muisca, a native civilization of great local importance at the time of the Spanish arrival in what is now Colombia.
+The cuisine of this region is fundamentally based on the heritage of the indigenous Muisca people—who consumed corn and potato porridge as traditional foods—and incorporates some foreign customs, featuring a wide variety of agricultural products and aromatic plants thanks to the unique climate in which they thrive. The climate has also allowed for the cultivation and harvesting of all kinds of vegetables perfect for these dishes, such as potatoes, onions, artichokes, celery, cabbage, ulluco (a type of tuber), and other tubers.
 </p>
 
 <p align="justify">
-The cuisine of this region is fundamentally based on the heritage of the Muisca indigenous people—who consumed corn and potato porridges as traditional foods—and incorporates some foreign customs. It boasts a diverse array of products and aromatic herbs, thanks to its unique climate, which allows for the cultivation and harvesting of numerous vegetables, including celery, cabbage, cucumber, artichoke, and tubers such as potatoes, oca, ulluco, radishes, and onions.
+In the highlands of the Cundiboyacense plateau, the proper management of these ecosystems—as well as the hydrobiological resources present in the rivers and wetlands—was crucial for the indigenous people to obtain corn, tubers, and animal protein, in addition to products from the hillsides, thus feeding the large Muisca population that the Spanish encountered at that time, numbering close to one million inhabitants.
 </p>
 
 <p align="justify">
-The main economic activity outside of the cities is agriculture, particularly dairy farming and the cultivation of potatoes and corn. Historically, the climatic processes related to rainfall patterns and seasonality were of great interest to the cultures of the Andean highlands, enabling them to cultivate a wide variety of foods that continue to be used today.
+As a result of this achievement, the settlements of the Muisca indigenous community bequeathed a gastronomic heritage that materialized ancestral knowledge, techniques, and wisdom derived from culinary preparations and traditional cuisine, transmitted orally, constituting a fundamental cultural heritage that defined their identity in that territory.
 </p>
 
 <p align="justify">
-In the Cundiboyacense highlands, the proper management of these systems—as well as the hydrobiological resources present in the rivers and wetlands—was crucial for the indigenous people to obtain corn, tubers, and animal protein, as well as products from the highland slopes, thus feeding the large Muisca population that the Spanish later encountered at that time, numbering close to one million inhabitants.
+This historical fact demonstrates that the dishes we bring to our kitchens not only contain the ingredients that make up their recipe, but also their geographical origin, the families who have grown up with them, their customs, and their identity, which still endures. It's worth highlighting that the regional cuisine of Boyacá and Cundinamarca offers a vast gastronomic panorama, bringing together countless products, traditions, and cultures from all over the world, including Asia, the Americas, Europe, and Africa. One example is the broad bean (Vicia faba L.), an important agricultural product that accompanies most of the soups consumed in Boyacá, such as ajiaco, cuchuco, rulla, and cocido. Originally from the Near East, the broad bean and the subspecies V. faba paucijuga are currently found in the area extending from Afghanistan to India. Archaeological evidence suggests that broad beans have been cultivated since the Early Neolithic period. Furthermore, it has been proven that eating broad beans in dishes like barley cuchuco is beneficial to health because, in addition to providing protein and energy, it also helps reduce cholesterol levels in the blood.
 </p>
 
 <p align="justify">
-As a result of this feat, the settlements of the Muisca indigenous community bequeathed a gastronomic heritage that materialized ancestral knowledge, techniques, and wisdom derived in culinary preparations and traditional cuisine, which were transmitted orally, constituting a fundamental cultural heritage that defined their identity in that territory.
-</p>
-
-<p align="justify">
-This fact demonstrates that the recipes that come to the pot contain not only the ingredients of their own recipe book, but also their geography, their people, their customs, and their history. 
-</p>
-
-<p align="justify">
-On the other hand, the cuisine of the Cundinamarca-Boyacá region encompasses a gastronomic map that brings together products, traditions, and cultures as diverse and distant as Asian, African, European, and, of course, American. An example of this is the broad bean (Vicia faba L.), an important agricultural product that accompanies most of the soups consumed in Boyacá, such as ajiacos, cuchucos, rullas, and cocidos. Originally from the Near East, the broad bean and the subspecies V. faba paucijuga are currently found in the area stretching from Afghanistan to India. It has also been determined that the broad bean has been cultivated since the early Neolithic period. Furthermore, eating broad beans is beneficial to health because it provides protein and energy, in addition to helping lower blood cholesterol.
-</p>
-
-<p align="justify">
-These are some of the most striking features we can find in cuchuco de trigo con espinazo (wheat cuchuco with pork spine). A dish primarily made with potatoes and ground grains, it forms the basis of Boyacá cuisine, a local gastronomy that combines well and provides essential elements for daily life. In short, it could be described as a hearty, enjoyable, substantial, and revitalizing meal, seasoned with various vegetables and meats that blend both indigenous and European traditions, and one that always leaves you wanting more.
+These are some of the most outstanding characteristics of cuchuco de cebada con espinazo (barley and pork spine stew). This dish, made primarily with potatoes and ground grains, represents the foundation of Boyacá's gastronomy, showcasing a local cuisine that perfectly combines a wide range of essential ingredients for healthy growth and well-being. In short, cuchuco can be described as a hearty, delicious, substantial, and revitalizing meal, with a vibrant palette of diverse vegetables and meats that blend indigenous and European traditions, always leaving diners with a full belly and a happy heart.
 </p>
