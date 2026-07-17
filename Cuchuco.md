@@ -40,6 +40,8 @@ This historical fact demonstrates that the dishes we bring to our kitchens not o
 These are some of the most outstanding characteristics of cuchuco de cebada con espinazo (barley and pork spine stew). This dish, made primarily with potatoes and ground grains, represents the foundation of Boyacá's gastronomy, showcasing a local cuisine that perfectly combines a wide range of essential ingredients for healthy growth and well-being. In short, cuchuco can be described as a hearty, delicious, substantial, and revitalizing meal, with a vibrant palette of diverse vegetables and meats that blend indigenous and European traditions, always leaving diners with a full belly and a happy heart.
 </p>
 
+## *Video*
+
 ---
 
 ## *References*
