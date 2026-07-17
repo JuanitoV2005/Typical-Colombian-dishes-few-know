@@ -10,6 +10,10 @@ The orinoquia region is also known as “llanos orientales”. This region is a 
 Historically, the region has been defined by three related elements, cattle ranching, the horse and fire. These are not simple economic elements, in fact the elements represent the base of the llanero cultural identity. The Orinoco gastronomy reflects this reality: dishes like mamona, chiguiro, tungos, hallacas llaneras and casabe are not aleatory or isolated recipes. Rather the expressions showing a way of life built the communitarian work and the cattle ranching.
 </p>
 
+<p align="center">
+  <img width="686" height="386" alt="image" src="https://github.com/user-attachments/assets/7671c03d-3f49-41ad-bef6-5dea96bd62fc" />
+</p>
+
 ## *Review*
 
 <p align="justify">
