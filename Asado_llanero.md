@@ -53,6 +53,11 @@ The preparation of carne a la llanera has a simple seasoning, but it needs patie
 After that, the cuts are put on wooden rods or sticks. The sticks are placed at an angle around the fire, which is arranged in a circle or in a special hole. Another option is to use a wooden or iron structure called *el burro*. The cooking is slow and it takes several hours. The rods are turned from time to time, so the meat becomes golden on all sides. During the cooking, the meat is not pierced or cut to keep its juices. At the end, the meat is served on a table covered with plantain leaves, accompanied by cassava (yuca), plantain, papa criolla, and guacamole. It is a dish to share.
 </p>
 
+## Video
+
+Watch the video here: [Asado llanero](https://youtu.be/HPBXAt_2Dug)
+
+
 ---
 
 ## References
